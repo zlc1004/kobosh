@@ -1,1 +1,0 @@
-# Kobosh Joei Truth
